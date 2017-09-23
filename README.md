@@ -1,13 +1,6 @@
 ## Welcome to jaysys.github.io of Mr.Magic
 
-### UNDER CONSTRUCTION
-
-
-
-
-
-
-
+UNDER CONSTRUCTION
 
 ---
 
